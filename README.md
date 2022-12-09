@@ -1,4 +1,4 @@
-Igor Améndola (Birkman) has been nominated 8 times
+Igor Améndola has been nominated 8 times
 -----------------
 
 * Gladys Noh
