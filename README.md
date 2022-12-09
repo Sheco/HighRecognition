@@ -1,4 +1,4 @@
-Igor Améndola (Birkman) has been nominated 8 time
+Igor Améndola (Birkman) has been nominated 8 times
 -----------------
 
 * Gladys Noh
@@ -33,7 +33,7 @@ Igor Améndola (Birkman) has been nominated 8 time
 
 > Por siempre estar al pendiente de todos y siempre estar buscando como ayudar incluso si no es algo que se encuentre dentro de sus funciones
 
-Pedro Uh has been nominated 2 time
+Pedro Uh has been nominated 2 times
 -----------------
 
 * Gladys Noh
@@ -44,7 +44,7 @@ Pedro Uh has been nominated 2 time
 
 > Por estar muy pendiente de los demás, apoyarlos en su crecimiento profesional y tener mucha paciencia a la hora de enseñar y transmitir sus conocimientos.
 
-Ricardo Rodríguez has been nominated 2 time
+Ricardo Rodríguez has been nominated 2 times
 -----------------
 
 * Gladys Noh
@@ -55,7 +55,7 @@ Ricardo Rodríguez has been nominated 2 time
 
 > Nomino a Ricardo porque él es una persona con gran sentido de compañerísmo y amistad. Él siempre está dispuesto a ayudar a quien lo necesite y eso influye en el crecimiento profesional de los demás, así como también en el crecimiento y mejora de skills del team.
 
-Sergio González has been nominated 9 time
+Sergio González has been nominated 9 times
 -----------------
 
 * Danny Moreno Solís
@@ -95,7 +95,7 @@ Sergio González has been nominated 9 time
 
 > Por proporcionar a los demás herramientas que son útiles en diferentes áreas, además de su constante motivación para mantenerlos activos.
 
-Val Revilla has been nominated 5 time
+Val Revilla has been nominated 5 times
 -----------------
 
 * Danny Moreno Solís
@@ -124,7 +124,7 @@ Val Revilla has been nominated 5 time
 
 > Eres una persona muy importante en SHM. Gracias a ti y a tu visión es que hay gente chida aquí con nosotros. Tu alegría y calidez nos une.
 
-Rodrigo Gamboa has been nominated 3 time
+Rodrigo Gamboa has been nominated 3 times
 -----------------
 
 * Danny Moreno Solís
@@ -141,7 +141,7 @@ Rodrigo Gamboa has been nominated 3 time
 
 > Ayudó a elaborar la plática del taller de "La ley de Pareto para el enfoque de esfuerzos", asesoró en algunas cuestiones de la presentación así como a todos aquellos que ofrecieron alguna plática o taller a SHM.
 
-Jacqueline Navarrete has been nominated 2 time
+Jacqueline Navarrete has been nominated 2 times
 -----------------
 
 * Sergio González
@@ -168,7 +168,7 @@ Lalo Rangel has been nominated 1 time
 
 > Nomino a Eduardo por su increíble desempeño desde que formó parte de SHM. En pocos meses aprendió y tomo la responsabilidad del área de Finanzas. Siempre está dispuesto a ayudar en otras áreas y tiene la mejor actitud del mundo. Es impresionante su habilidad para aprender nuevas cosas, implementar mejoras y soluciones. Como compañero, siempre da el ejemplo y lleva en alto los valores de SHM. Tiene mi total admiración!
 
-Gladys Noh has been nominated 2 time
+Gladys Noh has been nominated 2 times
 -----------------
 
 * Ricardo Rodríguez
@@ -186,7 +186,7 @@ Sofia Guillermo has been nominated 1 time
 
 > Sofi es una persona que siempre está dispuesta a ayudar, poniendo en alto el valor de Compañerismo en SHM. Siempre tiene algo que contar y compartir durante las videollamadas y también escucha atentamente y busca dar soluciones a las situaciones que se presentan.
 
-Danny Moreno Solís has been nominated 4 time
+Danny Moreno Solís has been nominated 4 times
 -----------------
 
 * Jacqueline Navarrete
@@ -214,7 +214,7 @@ Danny Moreno Solís has been nominated 4 time
 
 > Por el compañerismo y apoyo que ha demostrado en diversos momentos, la buena actitud para cualquier situación que se presenta en el proyecto y sobre todo en la apertura para identificar diferentes formas de resolver cualquier inconveniente que ocurran en el mismo.
 
-Fer Garrido has been nominated 2 time
+Fer Garrido has been nominated 2 times
 -----------------
 
 * Reny Pech Ortega
